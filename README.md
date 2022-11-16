@@ -1,1 +1,0 @@
-﻿# Repository where I store all my wallpapers 👌😀
